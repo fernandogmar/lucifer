@@ -30,4 +30,13 @@ La verdadera revolución llegará cuando todos apreciemos más lo que tenemos.
 
 Pese a intentarlo con todas mis fuerzas, una y otra vez no pude conseguirlo.
 
-Al final concluyo, puede que con un tópico, pero recuérdalo siempre: todos debemos librar nuestra propia batalla/crear nuestro destino. Y no hay nada más que yo pueda hacer, salvo escribir estas líneas que con suerte llegarán a tus manos y quién sabe, quizás cumplan su cometido, haciendo que tú escribas tús propias líneas antes de que otros las escriban por ti.
+Al final concluyo, puede que con un tópico, pero recuérdalo siempre: todos debemos librar nuestras propias batallas. Y no hay nada más que yo pueda hacer, salvo escribir estas líneas que con suerte llegarán a tus manos y quién sabe, quizás cumplan su cometido, haciendo que tú escribas tús propias líneas antes de que otros las escriban por ti.
+
+day 4
+-----
+
+En esta vida hay que ser egoísta que nadie te engañe. Todo se mueve por el propio interés, incluso aquellos que hablan de ser solidarios, que van de altruistas por la vida. Sí, que no te extrañe, quizás el medio de alcanzar sus objetivos sea distinto, pero lo que todos tratan es de sentirse bien, tener éxito y alcanzar la tan ansiada felicidad. 
+
+Creías que te iba contar algún secreto de la vida, con tantos años de experiencia uno ha visto ya de todo, y no creas que hay mucho que contar. Todo se repite, el ciclo de la vida no es distinto en el hombre. Estudia un poco la historia... y francamente crees que no va a repetirse?, qué eres mejor que los que pasaron antes que tú por este mundo? Así me gusta que te cuestiones las cosas.
+
+Ya lo sabes, sois egoístas, es algo que esta en vuestra genética, lo habeis llevado desde que empezásteis este juego. Es pura supervivencia.
